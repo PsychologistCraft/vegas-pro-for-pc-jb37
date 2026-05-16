@@ -1,4 +1,4 @@
-# 
+# Enhance Vegas Pro for PC | Vegas Pro for Windows with Vegas Pro for PC | Vegas Pro for Windows custom Extension: color-grading & transition-effects, the #1 extension. Includes
 
 
 
